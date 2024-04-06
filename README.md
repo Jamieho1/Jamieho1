@@ -24,5 +24,5 @@ I'm currently studying Biomedical Engineering Master's degree at Imperial Colleg
 I'm looking to collaborate on medical and finance machine-learning projects.
 
 ### Contact
-For a quick response, DM me on LinkedIn.
+For a quick response, DM me on [LinkedIn](https://www.linkedin.com/in/jamie-ho-15a90719a/).
 
